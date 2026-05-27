@@ -1,1 +1,0 @@
-# picada_delivery
